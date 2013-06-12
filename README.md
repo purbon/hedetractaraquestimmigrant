@@ -12,7 +12,7 @@ destrueixin per sempre.
 Em de tenir clar com volem que sigui la nostre societat, jo vull que
 tothom pugui accedir a una educació i sanitat publica de qualitat. 
 
-Tengo que tratar a este Inmigrante?
+Debo tratar a este Inmigrante?
 ==============================
 
 Inspirada en la pagina creada por @ntoll, esta es la versión en catalan
